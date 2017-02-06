@@ -1,2 +1,5 @@
-# [Chiwase skin](https://www.dropbox.com/home?preview=Chiwase+skin1.osk)
-![](https://osu.ppy.sh/ss/7245831)
+# [-+ Chiwase -+](http://qoo.by/RWZ)
+![](http://qps.ru/dQ0OA)
+
+# [Chiwase skin](http://qoo.by/RX2)
+![](http://qps.ru/F4boc)
